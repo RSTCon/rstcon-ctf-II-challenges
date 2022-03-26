@@ -1,0 +1,1 @@
+E important sa discutati cu noi (si nu intre voi) in cazul in care apar probleme cu exercitiile. Dar putem discuta si daca nu apar. Haideti sa vorbim! Stiti unde ne gasiti.
